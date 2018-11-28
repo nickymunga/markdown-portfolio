@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Swimming.
+2. Pork.
+3. Driving
